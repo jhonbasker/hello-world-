@@ -1,1 +1,1 @@
-"sometimes deleted things are not realy gone isnt it "
+"sometimes it's deep inside 
